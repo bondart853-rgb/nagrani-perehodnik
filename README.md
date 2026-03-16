@@ -1,2 +1,0 @@
-# nagrani-perehodnik
-Na grani
